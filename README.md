@@ -1,16 +1,15 @@
-### Hi there 👋
+### Vietphap Company Limited
 
-<!--
-**vifranco9/vifranco9** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Vifranco công ty chuyên sản xuất phân phối các mặt hàng bánh kẹo, socola, bánh cao cấp, bột cacao nổi tiếng được nhiều siêu thị, nhà phân phối lựa chọn nhất hiện nay.
 
-Here are some ideas to get you started:
+- Địa chỉ: Số 24 Đường 26, khu công nghiệp Sóng Thần 2, Phường Tân Đông Hiệp, Thành phố Dĩ An, Tỉnh Bình Dương
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- SĐT: 0869377999
+
+- Website: https://vifranco.com.vn/
+
+https://www.pinterest.com/vifranco9/
+
+https://vimeo.com/vifranco9
+
+https://www.youtube.com/channel/UCuiBKEw-URYk6c99D2mMAFQ
